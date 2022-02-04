@@ -1,1 +1,0 @@
-# hakob-khachatryan.github.io
